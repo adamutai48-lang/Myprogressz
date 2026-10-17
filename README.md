@@ -1,2 +1,0 @@
-# Myprogressz
-Just human
